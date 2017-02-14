@@ -25,4 +25,4 @@
    <br><br>
    ![hasil 1] (https://s18.postimg.org/z336yrznt/image.png)
    <br><br>
-   ![hasil 1] (https://s27.postimg.org/oshpu335f/image.png)
+   
